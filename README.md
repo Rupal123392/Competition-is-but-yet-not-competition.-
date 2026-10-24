@@ -1,0 +1,1 @@
+# Competition-is-but-yet-not-competition.-
